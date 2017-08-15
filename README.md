@@ -1,3 +1,1 @@
-## Homepage for Seth Musich
-
-## Template from startbootstrap.com
+## Website for Juiced. Cafe in Hallowell, Maine
